@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @manikanta0407
+- 👀 I’m interested in Learning New Technologies
